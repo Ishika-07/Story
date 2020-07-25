@@ -1,1 +1,1 @@
-Once upon a time in jungle lived a hare and a tortoise.
+Once upon a time in jungle lived a hare and a tortoise.They had a race.
